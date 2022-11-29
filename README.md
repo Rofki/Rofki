@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Rofki
+- 👀 I’m interested in ~mostly cooking, I do a little bit of programming on the side, as a treat
